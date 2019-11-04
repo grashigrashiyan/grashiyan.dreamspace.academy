@@ -1,2 +1,0 @@
-# grashiyan.dreamspace.academy
-zzzzzzzzzzzzzz
